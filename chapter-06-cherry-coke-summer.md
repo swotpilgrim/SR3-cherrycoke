@@ -1,8 +1,6 @@
 # Chapter 6: First Real Conversation
 
-The Friday lunch rush is brutal.
-
-It starts at eleven-thirty when a tour bus disgorges forty seniors who all want the early bird special that we don't actually offer until dinner. By noon, every booth is full, every counter stool occupied, and the line extends out the door. Rita is shouting orders in the kitchen, Diane is on the verge of tears over a mix-up with table six, and I'm juggling eight orders while Mrs. Patterson complains that her eggs aren't the right temperature.
+The Friday lunch rush is brutal. A tour bus disgorges forty seniors, every booth fills, the line extends out the door. Rita shouts orders, Diane's near tears, and I'm juggling eight orders while Mrs. Patterson complains about her eggs.
 
 The coffee pot slips from my hand and crashes to the floor.
 
@@ -16,9 +14,7 @@ I look up. He's sitting at his usual counter spot—2:30 is still an hour away, 
 
 "Come here," he says quietly.
 
-I glance around. The diner is watching. Rita is frozen in the kitchen doorway. A customer in booth three is taking a long sip of water, clearly ready to enjoy whatever drama unfolds.
-
-But Jack's hand is extended across the counter, and without thinking, I move toward him.
+The diner is watching, but Jack's hand is extended across the counter. I move toward him.
 
 "Give me your order pad," he says.
 
@@ -134,11 +130,11 @@ I excuse myself and follow Rita to the supply closet, where she immediately roun
 
 "We were just talking, Rita."
 
-"Mm-hmm. That's how it starts. Talking." She shakes her head. "Ruthie, I've worked in this diner for twenty years. I've seen girls like you fall for boys like him. It never ends well."
+"Mm-hmm. That's how it starts." She shakes her head. "I've seen girls like you fall for boys like him. It never ends well."
 
-"Girls like me?" The words come out sharper than intended. "What's that supposed to mean?"
+"Girls like me?"
 
-"Good girls. Smart girls. Girls with their whole lives ahead of them." Rita's voice softens. "You're Tommy Richardson's girl. You're going to marry him, help your parents with the diner, have babies, live a good life. Don't throw that away for a boy on a motorcycle who'll be gone in a week."
+"Good girls with their whole lives ahead of them. You're Tommy Richardson's girl. Don't throw that away for a boy on a motorcycle who'll be gone in a week."
 
 "Maybe I don't want that life."
 
@@ -148,9 +144,7 @@ Rita blinks. "What?"
 
 "Maybe I don't want to marry Tommy or take over the diner or live my whole life in Seaside Heights." I can hear my voice rising but I can't stop it. "Maybe I want to go to college and study journalism and see the world outside this town. Did anyone ever think of that?"
 
-Rita's expression shifts from stern to something softer. Almost sad.
-
-"Oh, honey. We all want things when we're young. I wanted to be a singer once. Imagined myself on stages in New York, wearing fancy dresses, making records." She hands me a box of napkins. "But that's not how life works. We grow up. We accept reality. We find happiness in what's real instead of chasing what's impossible."
+Rita's expression softens. "We all want things when we're young. I wanted to be a singer once." She hands me a box of napkins. "But we grow up. We accept reality instead of chasing what's impossible."
 
 "Journalism school isn't impossible. It's just—"
 
@@ -158,11 +152,7 @@ Rita's expression shifts from stern to something softer. Almost sad.
 
 She leaves me standing in the supply closet, holding napkins and feeling like I've been doused in cold water.
 
-When I return to the main diner, Jack is watching me. He doesn't ask what Rita said, but something in his expression tells me he can guess.
-
-I should stay away. I should heed my parents' warning, Rita's advice, the voice in my head that says this is dangerous.
-
-Instead, I pour Jack a fresh cup of coffee and linger at the counter.
+When I return to the main diner, Jack is watching me. I should stay away, heed my parents' warning, Rita's advice. Instead, I pour Jack a fresh cup of coffee and linger at the counter.
 
 "You asked what I write about," I say quietly. "I write about people who feel trapped in lives they didn't choose. People who want more than what they're offered but don't know how to ask for it."
 
@@ -170,17 +160,17 @@ Jack's eyes meet mine. "That sounds like good journalism to me."
 
 "You think so?"
 
-"I think writing about people who feel trapped might be the most honest thing you could do. Because most people DO feel trapped. They just don't admit it."
+"Writing about people who feel trapped might be the most honest thing you could do. Most people DO feel trapped. They just don't admit it."
 
-He pulls his book from his jacket pocket and sets it on the counter. This time, I can see the full cover: East of Eden.
+He pulls out his book and sets it on the counter: East of Eden.
 
 "There's a part in here," Jack says, flipping through pages like he knows exactly where to find it. "About timshel. It's a Hebrew word. Means 'thou mayest.'"
 
 "Thou mayest what?"
 
-"Anything. Everything. It's about choice. About how we're not stuck with the lives we're given—we can choose differently." He looks up at me. "Steinbeck understood that wanting more isn't selfish. It's human."
+"Anything. Everything. It's about choice—we're not stuck with the lives we're given." He looks up at me. "Steinbeck understood that wanting more isn't selfish. It's human."
 
-I feel tears prick the back of my eyes, which is ridiculous. We're talking about a book, about a Hebrew word, about nothing and everything.
+Tears prick my eyes. We're talking about a book, but it feels like everything.
 
 "What if choosing differently means disappointing everyone who loves you?"
 

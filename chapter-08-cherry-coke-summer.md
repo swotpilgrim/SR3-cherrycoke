@@ -1,20 +1,12 @@
 # Chapter 8: Freedom on Two Wheels
 
-The second Thursday comes faster than I expected and slower than I wanted. All week, I've been counting down—not to the weekend or my days off, but to 10 PM on Thursday when Jack promised to meet me again.
+The second Thursday comes both too fast and too slow. All week I've been counting down to 10 PM, to Jack, to that feeling of freedom and choice.
 
-I haven't told anyone. Not Diane, who would squeal and demand details. Not Tommy, who's been extra attentive lately, sensing my distance even if he can't name it. Definitely not my parents, who think I've taken their warnings to heart and stopped talking to "that motorcycle boy."
+I haven't told anyone. Not Diane, not Tommy, definitely not my parents who think I've stopped talking to "that motorcycle boy."
 
-The week crawls by in a haze of routine—morning shifts, coffee pots, Cherry Cokes, Tommy's sweet but suffocating attention, my parents' plans for the diner expansion that assumes I'll be here forever.
+The week crawls by—morning shifts, Cherry Cokes, Tommy's suffocating attention, my parents' expansion plans that assume I'll be here forever. But underneath the routine, I'm vibrating with anticipation.
 
-But underneath the routine, I'm vibrating with anticipation. Because Thursday at 10 PM means Jack. Means freedom. Means the feeling of wind and speed and choosing something for myself.
-
-When Thursday finally arrives, I work my closing shift in a state of barely contained excitement. Rita notices.
-
-"You're awful chipper for someone scrubbing grease traps," she comments.
-
-"Just happy it's Thursday," I say, which isn't exactly a lie.
-
-At 9:55, I finish my closing tasks in record time. At 9:58, I hang up my apron and grab my purse. At 10:00 exactly, I lock the diner door and step into the parking lot.
+When Thursday arrives, I work my closing shift in barely contained excitement. At 10:00 exactly, I lock the diner door and step into the parking lot.
 
 Jack is already there, waiting in the same spot under the streetlight. When he sees me, he smiles—that rare, genuine smile that makes him look younger and less guarded.
 
@@ -24,33 +16,29 @@ Jack is already there, waiting in the same spot under the streetlight. When he s
 
 "I've been here since 9:45."
 
-The admission makes my heart skip. He's been waiting, eager, anticipating this as much as I have.
-
-I put on the helmet without needing help this time, and when I climb onto the motorcycle behind him, it feels less terrifying and more like coming home. I wrap my arms around his waist, and this time, the contact doesn't make me nervous. It feels right.
+My heart skips. I put on the helmet, climb onto the motorcycle behind him. This time it feels less terrifying, more like coming home. I wrap my arms around his waist, and the contact feels right.
 
 "Where are we going?" I ask.
 
 "North. I want to show you something."
 
-The engine roars to life, and we're off. The route is familiar now—out of Seaside Heights, up the coast highway, the ocean black and endless to our left. But instead of stopping at the scenic overlook from last week, Jack keeps going.
-
-The ride is longer this time, maybe forty minutes, and I stop worrying about falling or holding on too tight. Instead, I lean into Jack's back and watch the world blur past—dark ocean, darker cliffs, stars so bright they look close enough to touch.
+The engine roars, and we're off. Out of Seaside Heights, up the coast highway, past last week's overlook. The ride is longer this time—forty minutes of dark ocean, darker cliffs, bright stars. I lean into Jack's back and watch the world blur past.
 
 Finally, Jack slows and turns off onto a dirt road I've never noticed before. We bump along for a few minutes, then emerge onto a secluded beach, small and protected by rocky outcroppings on either side.
 
 He kills the engine, and the silence is profound. Just waves and wind and the distant cry of a seabird.
 
-"Where are we?" I pull off the helmet, and my hair tumbles free.
+"Where are we?" I pull off the helmet.
 
-"About twenty miles north of Seaside Heights. No one comes here—it's too hard to access from the road. But I found it last week and thought—" He pauses. "Thought you'd like it."
+"Twenty miles north. No one comes here—too hard to access. Thought you'd like it."
 
-We dismount, and I look around in wonder. The beach is perfect—untouched sand, driftwood scattered like sculptures, the ocean rolling in with steady rhythm. Above us, the Milky Way stretches across the sky, so clear I can see the cloudy band of stars.
+The beach is perfect—untouched sand, driftwood, the ocean rolling in steady. Above us, the Milky Way stretches clear across the sky.
 
 "It's beautiful," I breathe.
 
 "Yeah." But when I glance at Jack, he's looking at me, not the beach.
 
-We walk down to the water's edge, and I slip off my shoes, letting the cool sand squish between my toes. The water is cold when it touches my feet, but I don't care. I feel wild and free and more myself than I ever do in Seaside Heights.
+We walk to the water's edge. I slip off my shoes, letting cool sand squish between my toes. I feel wild and free and more myself than I ever do in Seaside Heights.
 
 "How do you feel?" Jack asks.
 
@@ -60,23 +48,23 @@ I think about the question, trying to articulate the sensation in my chest.
 
 Jack nods like he understands exactly what I mean. "That's what riding does for me. Gives me perspective. When I'm moving, when there's wind and road and nothing but choices about where to go next, everything else shrinks down to manageable size."
 
-We walk in silence for a while, listening to the waves. Then Jack speaks again.
+We walk in silence, listening to waves.
 
-"Can I ask you something? About the people you write about—the ones who feel trapped. Are you writing about yourself?"
+"Can I ask you something? About the people you write about—are you writing about yourself?"
 
-The question should feel invasive, but coming from Jack, it just feels honest.
+The question feels honest coming from Jack.
 
-"Maybe. Yeah. I guess I am." I pick up a shell, smooth it between my fingers. "I've never said this out loud to anyone, but I'm terrified of waking up at forty and realizing I never even tried to want something different than what I was given. That I let other people's plans become my life because I was too scared to make my own."
+"Yeah. I am." I pick up a shell. "I'm terrified of waking up at forty and realizing I never even tried to want something different. That I let other people's plans become my life because I was too scared to make my own."
 
-"You're seventeen," Jack says. "You have time."
+"You're seventeen. You have time."
 
-"Do I? In six months, I'll graduate. Everyone expects me to work full-time at the diner, get engaged to Tommy, maybe take a couple classes at the community college if I'm feeling ambitious. A year from now, I could be engaged. Two years, married. Five years, running the diner with two kids and no memory of ever wanting something else."
+"Do I? In six months I graduate. Everyone expects me to work at the diner, get engaged to Tommy. A year from now, engaged. Two years, married. Five years, running the diner with kids and no memory of ever wanting something else."
 
 "Then don't let that happen."
 
-"How?" The word comes out more desperate than I intended. "How do I not let it happen when everyone I love wants it to happen? When saying no means disappointing my parents and hurting Tommy and being the selfish girl who thought she was too good for her own family?"
+"How? When everyone I love wants it to happen? When saying no means disappointing my parents and being the selfish girl who thought she was too good for her own family?"
 
-Jack stops walking and turns to face me directly. "Ruthie, living your own life isn't selfish. It's necessary. If you don't choose yourself, no one else will."
+Jack faces me directly. "Living your own life isn't selfish. It's necessary. If you don't choose yourself, no one else will."
 
 "My parents would say that's exactly the kind of selfish thinking that ruins lives."
 
@@ -116,21 +104,19 @@ My heart is pounding so hard I'm sure he can hear it over the waves.
 
 "But you barely know me. How can you be so sure?"
 
-"Because I've been watching you for three weeks. I see how you handle the diner rush with grace even when you're overwhelmed. I see how you remember what every regular orders, how you notice when Mr. Henderson seems sad or when Diane needs encouragement. I've read your notes in that journal—" He stops himself. "Okay, I haven't actually read them. But I've seen how you write like it matters, like documenting people's stories is important work. That's journalism, Ruthie. You're already doing it."
+"Because I've been watching you. I see how you handle the rush with grace, how you remember what every regular orders, how you notice when people need encouragement. I've seen how you write like it matters, like documenting people's stories is important work. You're already doing journalism, Ruthie."
 
-No one has ever believed in me like this. Not even Mr. Henderson, who encouraged me but in that distant, abstract way. Jack believes in me with a fierce certainty that makes me want to believe in myself.
+No one has ever believed in me like this. Jack believes with a fierce certainty that makes me want to believe in myself.
 
-"What if leaving means losing everything?" I whisper. "My family, Tommy, everything familiar?"
+"What if leaving means losing everything?"
 
-"Then you'll build something new. Something yours." He pauses. "And you won't be alone."
-
-The implication hangs in the air between us.
+"Then you'll build something new. Something yours. And you won't be alone."
 
 "Jack—"
 
-"I'm not saying I have answers. I'm not saying I know what I'm doing or where I'll be in six months." His voice is rough with honesty. "But I'm saying that if you choose to go, to try, to chase your dreams—I'll be on your side. However that looks."
+"I don't have all the answers." His voice is rough. "But if you choose to go, to try, to chase your dreams—I'll be on your side. However that looks."
 
-The waves crash, and the stars wheel overhead, and I stand on this secret beach with a boy who sees me completely and asks nothing except that I see myself the same way.
+I stand on this secret beach with a boy who sees me completely.
 
 I take his hand. His fingers close around mine, warm and solid.
 
@@ -162,22 +148,18 @@ Jack's smile is slow and devastating. "The diner's open tomorrow. I'll be there 
 
 He says it simply, like it's just a fact, but it makes my heart soar.
 
-I watch him ride away, then slip into my dark house and up to my room. Safe behind my closed door, I pull out my journal.
+I watch him ride away, then slip into my dark house. Safe behind my closed door, I pull out my journal.
 
-*Tonight Jack took me to a secret beach. We talked about dreams and fear and the difference between running away and moving toward. He told me I'm already doing journalism, that I should chase my dreams, that wanting more isn't wrong.*
+*Tonight Jack took me to a secret beach. We talked about dreams and running and moving toward something. He told me I'm already doing journalism, that wanting more isn't wrong. And he told me I make him want to stay.*
 
-*And he told me I make him want to stay.*
+*When I'm with Jack, I feel more real than I do anywhere else. Like the version of myself I've been hiding can finally breathe.*
 
-*I don't know what we are—this thing between us. We're not officially together. We haven't even kissed. But when I'm with Jack, I feel more real than I do anywhere else. Like the version of myself I've been hiding can finally breathe.*
+*Is this what falling in love feels like?*
 
-*Is this what falling in love feels like? This terrifying, exhilarating sense that everything is changing and there's no going back?*
+I close the journal, mind spinning with starlight and ocean and Jack's hand in mine.
 
-I close the journal and lie in bed, my mind spinning with the memory of starlight and ocean and Jack's hand in mine.
+Tomorrow he'll be at the diner at 2:30. We'll pretend we're just customer and waitress while knowing we're so much more.
 
-Tomorrow he'll be at the diner at 2:30. Tomorrow I'll pour his coffee and pretend we're just customer and waitress while knowing we're so much more than that.
+And next Thursday, we'll ride again.
 
-And next Thursday, we'll ride again. We'll find another secret place. We'll talk about dreams and fears and all the things I can't talk about with anyone else.
-
-For the first time in my life, the future doesn't feel like a trap.
-
-It feels like possibility.
+For the first time in my life, the future doesn't feel like a trap. It feels like possibility.

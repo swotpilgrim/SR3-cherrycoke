@@ -1,8 +1,8 @@
 # Chapter 5: Parental Warnings
 
-Dinner at the Davis household is always at six o'clock sharp. We eat in the kitchen—Mom says the dining room is for special occasions—at the yellow Formica table Dad bought when they first got married. Tonight it's meatloaf, mashed potatoes, and green beans, the same meal we have every Thursday because Mom believes in routine.
+Dinner at the Davis household is always at six o'clock sharp. Tonight it's meatloaf, mashed potatoes, and green beans at the yellow Formica table—the same Thursday meal we've had for years.
 
-I'm pushing green beans around my plate, only half-listening to Mom talk about Mrs. Patterson's bunions and the new curtains she's thinking about for the diner, when Dad clears his throat.
+I'm pushing green beans around my plate when Dad clears his throat.
 
 That particular sound—not quite a cough, not quite a word—means he has something important to say.
 
@@ -112,29 +112,19 @@ Mom nods, and I escape to my room before they can say anything else about Uncle 
 
 I close the door and lean against it, my heart pounding.
 
-My room is exactly the same as it's been since I was fourteen. Yellow wallpaper with tiny flowers. White furniture. A stuffed bear on the bed that I'm too old for but can't quite throw away. Pictures on my bulletin board—me and Diane at the beach, me and Tommy at homecoming, my parents in front of the diner on opening day.
-
-A good girl's room. A safe girl's room. A girl who does what she's told and wants what she's supposed to want.
+My room is exactly the same as it's been since I was fourteen. Yellow wallpaper, white furniture, pictures of me and Diane, me and Tommy. A good girl's room.
 
 I pull out my journal and sit cross-legged on the bed.
 
-*My parents forbid me from talking to Jack. They don't know him, haven't met him, haven't heard a single word he's said. But they've decided he's dangerous because of a motorcycle and a leather jacket and a brother who died thirty years ago.*
+*My parents forbid me from talking to Jack. They've decided he's dangerous because of a motorcycle and Uncle Ray's story from thirty years ago.*
 
-*Dad's story about Uncle Ray was supposed to scare me. And maybe it should. Maybe Jack IS running from something. Maybe he WILL break my heart and leave.*
+*Maybe Jack IS running from something. Maybe he WILL break my heart and leave. But what scares me more is living the life they've planned for me. Tommy and the hardware store and a house on Sycamore Street and Sunday dinners where nothing matters.*
 
-*But what scares me more is living the life they've planned for me. Tommy and the hardware store and a house on Sycamore Street and Sunday dinners where we talk about bunions and curtains and nothing that matters.*
+*Is it so wrong to want MORE?*
 
-*Is it so wrong to want something different? To want MORE?*
+I stop writing and stare at the words. Want more. I want more than Seaside Heights offers. More than Tommy's certainties. More than my parents' narrow vision of happiness.
 
-I stop writing and stare at the words.
-
-Want more. That's what it comes down to, isn't it? I want more than Seaside Heights can offer. More than Tommy's simple certainties. More than my parents' narrow vision of happiness.
-
-And when Jack looks at me with those dark eyes, when he talks about Steinbeck and sees past my uniform to the person underneath—I feel like maybe "more" is possible.
-
-Even if it's dangerous.
-
-Especially if it's dangerous.
+And when Jack looks at me with those dark eyes—I feel like "more" is possible. Even if it's dangerous.
 
 There's a soft knock on my door.
 
@@ -142,37 +132,25 @@ There's a soft knock on my door.
 
 I shove the journal under my pillow. "Sure."
 
-She enters and sits on the edge of my bed, smoothing her skirt. For a moment, we just sit in silence.
-
-"Your father loves you very much," she says finally. "The story about Ray—that was hard for him to tell. He lost his brother twice. Once to prison and once to death. He doesn't want to lose you too."
+She sits on the edge of my bed. "Your father loves you very much. The story about Ray—that was hard for him to tell. He doesn't want to lose you too."
 
 "He's not losing me. I'm right here."
 
-"Are you?" Mom looks at me, really looks at me. "Because lately you seem miles away. Distracted. Restless. Like you're looking for something we can't give you."
+"Are you? Because lately you seem miles away. Restless."
 
-The accuracy of the observation steals my breath.
-
-"I'm fine, Mom. Just... thinking about the future."
+"I'm fine, Mom."
 
 "With Tommy?"
 
-"Maybe. I don't know."
+"I don't know."
 
-Mom pats my hand. "It's natural to have doubts. Every girl does before she settles down. I had doubts about your father when we were courting."
+Mom pats my hand. "It's natural to have doubts. I had doubts about your father when we were courting. He wanted to open a diner—I thought it was crazy. But he convinced me, and look how it turned out. We have a good life, Ruthie. Stability. Security."
 
-This surprises me. "You did?"
+"Don't you ever wonder what else is out there?"
 
-"Of course. He wanted to open a diner, and I thought it was the craziest idea I'd ever heard. Why not take a nice safe job at the bank? Why risk everything on a restaurant when most of them fail?" She smiles at the memory. "But your father had a dream, and he convinced me to believe in it too. And look how it turned out. We have a good life, Ruthie. Stability. Security. Love."
+"Not really. Everything I need is right here."
 
-"Don't you ever wonder what else is out there? Other places, other lives?"
-
-"Not really." Mom looks genuinely puzzled by the question. "Why would I? Everything I need is right here."
-
-And there it is. The fundamental difference between us. Mom has everything she needs in Seaside Heights. She's content with the diner and Dad and our little life in this little town.
-
-I'm not.
-
-I don't know if I ever will be.
+There it is. The fundamental difference between us. Mom is content with Seaside Heights. I'm not. I don't know if I ever will be.
 
 "I'll be more careful at the diner," I say finally. "I'll keep things professional with all the customers."
 
